@@ -16,6 +16,8 @@ https://www.abmc.gov/decedent-search/mcgee%3Dwilliam-0
 
 https://www.abmc.gov/news-events/events/75th-anniversary-battle-bulge-luxembourg-american-cemetery
 
+https://www.washingtonpost.com/video/national/patton-buried-in-luxembourg/2017/04/24/ad162308-294f-11e7-9081-f5405f56d3e4_video.html
+
 https://youtu.be/NmIvZENf020
 
 https://youtu.be/A-qpW0aItdc
