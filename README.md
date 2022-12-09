@@ -14,6 +14,8 @@ https://www.abmc.gov/news-events/news/renovation-projects-luxembourg-american-ce
 
 https://www.abmc.gov/decedent-search/mcgee%3Dwilliam-0
 
+https://www.abmc.gov/news-events/events/75th-anniversary-battle-bulge-luxembourg-american-cemetery
+
 https://youtu.be/NmIvZENf020
 
 https://youtu.be/A-qpW0aItdc
