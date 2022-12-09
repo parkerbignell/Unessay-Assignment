@@ -43,3 +43,5 @@ My goal upon completing this assignment is to have constructed an exact copy of 
 ![IMG_4053 1](https://user-images.githubusercontent.com/113065635/206333251-247fee56-e383-4307-b956-0ff7b99fbc24.PNG)
 ![IMG_4052 1](https://user-images.githubusercontent.com/113065635/206333284-11faeae3-a07c-4d9c-b564-f3b14ec5c0f5.PNG)
 ![IMG_4054 1](https://user-images.githubusercontent.com/113065635/206551292-353b30e8-51eb-48fe-925d-c48a3e7807cd.PNG)
+![IMG_4056 1](https://user-images.githubusercontent.com/113065635/206753342-a7ae54b1-e691-4275-8070-1b7bc1b1b311.PNG)
+![IMG_E4057 1](https://user-images.githubusercontent.com/113065635/206753438-f63e7608-8173-45c4-92df-56faa3ee2140.JPG)
