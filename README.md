@@ -45,7 +45,7 @@ My goal upon completing this assignment is to have constructed an exact copy of 
 ## Process Letter (Dec. 9th)
 Since documenting my last process letter, I have added in the gravesite of General George S. Patton, as well as the foliage in the surrounding area. I built a higher level for where I will add strcutures in future stages of my development, as well as plants and a gate to closely resemble the details present at the actual cemetery. I surrounded the grave with moss and small plants, the exact inscription on the General's grave, a chain protecting it from vandalism, as well as a specific stone pattern in front of the gravesite. The area I ran into the most difficulty would have to be the idea of the flags, as I tried to craft my own banners for the United States and Luxembourg flags, but those did not work, so I instead tried to make them on a loom, all the while trying to learn the techniques online. That did not work either, so I eventually changed the dimensions of the moss-covered background to just put up banners depicting the main colours of each country's flag, albeit upside down. As a result, I successfully completed my model of one of the most crucial sections of the cemetery. 
 ## Process Letter (Dec. 10th)
-Today, 
+Today, I added various other parts to my design.
 ## Development Images
 ![IMG_4051 1](https://user-images.githubusercontent.com/113065635/206333082-da3c16ef-0c26-4744-841b-cffab82238be.JPG)
 ![IMG_4053 1](https://user-images.githubusercontent.com/113065635/206333251-247fee56-e383-4307-b956-0ff7b99fbc24.PNG)
@@ -53,3 +53,4 @@ Today,
 ![IMG_4054 1](https://user-images.githubusercontent.com/113065635/206551292-353b30e8-51eb-48fe-925d-c48a3e7807cd.PNG)
 ![IMG_4056 1](https://user-images.githubusercontent.com/113065635/206753342-a7ae54b1-e691-4275-8070-1b7bc1b1b311.PNG)
 ![IMG_4060 1](https://user-images.githubusercontent.com/113065635/206753763-6cc36d80-7f37-44e0-8f3e-3ae0a9cff3e8.PNG)
+192.168.2.240 
