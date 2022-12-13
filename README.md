@@ -4,6 +4,9 @@
 ![Screenshot (38)](https://user-images.githubusercontent.com/113065635/206284679-8818208b-63b6-4699-81e9-ff52615d12f5.png)
 https://www.abmc.gov/news-events/news/general-george-s-patton-jr-buried-luxembourg-american-cemetery 
 
+https://www.abmc.gov/decedent-search/leo%3Dnancy![IMG_4062 1](https://user-images.githubusercontent.com/113065635/207462412-1d0f4d32-1ba0-457b-852f-352c99c65f9c.PNG)
+
+
 https://www.abmc.gov/decedent-search/turner%3Dday
 
 https://www.abmc.gov/Luxembourg 
@@ -52,5 +55,24 @@ Today, I added various other parts to my design.
 ![IMG_4052 1](https://user-images.githubusercontent.com/113065635/206333284-11faeae3-a07c-4d9c-b564-f3b14ec5c0f5.PNG)
 ![IMG_4054 1](https://user-images.githubusercontent.com/113065635/206551292-353b30e8-51eb-48fe-925d-c48a3e7807cd.PNG)
 ![IMG_4056 1](https://user-images.githubusercontent.com/113065635/206753342-a7ae54b1-e691-4275-8070-1b7bc1b1b311.PNG)
-![IMG_4060 1](https://user-images.githubusercontent.com/113065635/206753763-6cc36d80-7f37-44e0-8f3e-3ae0a9cff3e8.PNG)
-192.168.2.240 
+![IMG_4060 1](https://user-images.githubusercontent.com/113065635/206753763-6cc36d80-7f37-44e0-8f3e-3ae0a9cff3e8.PNG) 
+![IMG_4062 1](https://user-images.githubusercontent.com/113065635/207462463-a7765eb1-584d-4891-b103-1275dbf5faa2.PNG)
+![IMG_4065 1](https://user-images.githubusercontent.com/113065635/207462565-01bb5bd4-9c22-4975-a460-75e4f3f00f0a.PNG)
+![IMG_4066 1](https://user-images.githubusercontent.com/113065635/207462630-ca1c1512-9b5b-4b01-b15e-be40a457a159.PNG)
+![IMG_4067 1](https://user-images.githubusercontent.com/113065635/207462663-bec2fcee-74de-4742-a997-6b1046089a47.PNG)
+![IMG_4071 1](https://user-images.githubusercontent.com/113065635/207462724-3e3cacc6-fded-4cb2-8c11-2ad21fc03973.PNG)
+![IMG_4070 1](https://user-images.githubusercontent.com/113065635/207462776-f61391bd-42ee-4056-888b-9ab9682dff06.PNG)
+![IMG_4072 1](https://user-images.githubusercontent.com/113065635/207462815-5c2e42f9-0b74-428f-bb06-a9dd602263cd.PNG)
+![IMG_4073 1](https://user-images.githubusercontent.com/113065635/207462851-25adda51-e8d2-43aa-b47a-663adfc70633.PNG)
+![IMG_4075 1](https://user-images.githubusercontent.com/113065635/207462913-ab4a09f8-ff4d-4afe-9cdd-db7fb7fc5c61.PNG)
+![IMG_4076 1](https://user-images.githubusercontent.com/113065635/207463123-ae50c3d8-37b4-4ba6-875c-86e9df52734d.PNG)
+![IMG_4077 1](https://user-images.githubusercontent.com/113065635/207463159-0bf816a0-3cc3-47c9-a7f4-f61e3658e644.PNG)
+![IMG_4078 1](https://user-images.githubusercontent.com/113065635/207463207-4e1afbc9-35be-4a1a-833f-d1da226706f2.PNG)
+![IMG_4079 1](https://user-images.githubusercontent.com/113065635/207463233-9e85f1da-7ab5-4631-923a-0afc3c347905.PNG)
+![IMG_4081 1](https://user-images.githubusercontent.com/113065635/207463281-c4e89321-da54-4f41-8052-78dd968033a9.PNG)
+![IMG_4082 1](https://user-images.githubusercontent.com/113065635/207463305-d32ce335-609b-422b-8611-495aa973f5a3.PNG)
+![IMG_4083 1](https://user-images.githubusercontent.com/113065635/207463338-b178c570-d5a4-4503-b91c-e05dcab14aad.PNG)
+![IMG_4084 1](https://user-images.githubusercontent.com/113065635/207463380-4e37da6b-ff45-4606-9578-9cb5dd1103dc.PNG)
+![IMG_4085 1](https://user-images.githubusercontent.com/113065635/207463424-a313c17d-5bd5-4ed7-8591-16ed644b642d.PNG)
+![IMG_4090 1](https://user-images.githubusercontent.com/113065635/207463456-87c891bb-bf01-4e22-811c-9657da37dd63.PNG)
+
