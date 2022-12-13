@@ -6,9 +6,10 @@
 ![IMG_4078 1](https://user-images.githubusercontent.com/113065635/207463207-4e1afbc9-35be-4a1a-833f-d1da226706f2.PNG)
 ![IMG_4079 1](https://user-images.githubusercontent.com/113065635/207463233-9e85f1da-7ab5-4631-923a-0afc3c347905.PNG)
 ![IMG_4083 1](https://user-images.githubusercontent.com/113065635/207463338-b178c570-d5a4-4503-b91c-e05dcab14aad.PNG)
+
 https://www.abmc.gov/news-events/news/general-george-s-patton-jr-buried-luxembourg-american-cemetery 
 
-https://www.abmc.gov/decedent-search/leo%3Dnancy![IMG_4062 1](https://user-images.githubusercontent.com/113065635/207462412-1d0f4d32-1ba0-457b-852f-352c99c65f9c.PNG)
+https://www.abmc.gov/decedent-search/leo%3Dnancy
 
 https://www.abmc.gov/decedent-search/turner%3Dday
 
