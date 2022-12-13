@@ -2,10 +2,13 @@
 ## Research Points
 ![Screenshot (37)](https://user-images.githubusercontent.com/113065635/206275237-99741ced-6e43-40cb-a246-1ac7d88f6e6e.png)
 ![Screenshot (38)](https://user-images.githubusercontent.com/113065635/206284679-8818208b-63b6-4699-81e9-ff52615d12f5.png)
+![IMG_4077 1](https://user-images.githubusercontent.com/113065635/207463159-0bf816a0-3cc3-47c9-a7f4-f61e3658e644.PNG)
+![IMG_4078 1](https://user-images.githubusercontent.com/113065635/207463207-4e1afbc9-35be-4a1a-833f-d1da226706f2.PNG)
+![IMG_4079 1](https://user-images.githubusercontent.com/113065635/207463233-9e85f1da-7ab5-4631-923a-0afc3c347905.PNG)
+![IMG_4083 1](https://user-images.githubusercontent.com/113065635/207463338-b178c570-d5a4-4503-b91c-e05dcab14aad.PNG)
 https://www.abmc.gov/news-events/news/general-george-s-patton-jr-buried-luxembourg-american-cemetery 
 
 https://www.abmc.gov/decedent-search/leo%3Dnancy![IMG_4062 1](https://user-images.githubusercontent.com/113065635/207462412-1d0f4d32-1ba0-457b-852f-352c99c65f9c.PNG)
-
 
 https://www.abmc.gov/decedent-search/turner%3Dday
 
@@ -66,13 +69,8 @@ Over the past several days, I added new additions to my world. I added new grave
 ![IMG_4073 1](https://user-images.githubusercontent.com/113065635/207462851-25adda51-e8d2-43aa-b47a-663adfc70633.PNG)
 ![IMG_4075 1](https://user-images.githubusercontent.com/113065635/207462913-ab4a09f8-ff4d-4afe-9cdd-db7fb7fc5c61.PNG)
 ![IMG_4076 1](https://user-images.githubusercontent.com/113065635/207463123-ae50c3d8-37b4-4ba6-875c-86e9df52734d.PNG)
-![IMG_4077 1](https://user-images.githubusercontent.com/113065635/207463159-0bf816a0-3cc3-47c9-a7f4-f61e3658e644.PNG)
-![IMG_4078 1](https://user-images.githubusercontent.com/113065635/207463207-4e1afbc9-35be-4a1a-833f-d1da226706f2.PNG)
-![IMG_4079 1](https://user-images.githubusercontent.com/113065635/207463233-9e85f1da-7ab5-4631-923a-0afc3c347905.PNG)
 ![IMG_4081 1](https://user-images.githubusercontent.com/113065635/207463281-c4e89321-da54-4f41-8052-78dd968033a9.PNG)
 ![IMG_4082 1](https://user-images.githubusercontent.com/113065635/207463305-d32ce335-609b-422b-8611-495aa973f5a3.PNG)
-![IMG_4083 1](https://user-images.githubusercontent.com/113065635/207463338-b178c570-d5a4-4503-b91c-e05dcab14aad.PNG)
 ![IMG_4084 1](https://user-images.githubusercontent.com/113065635/207463380-4e37da6b-ff45-4606-9578-9cb5dd1103dc.PNG)
 ![IMG_4085 1](https://user-images.githubusercontent.com/113065635/207463424-a313c17d-5bd5-4ed7-8591-16ed644b642d.PNG)
 ![IMG_4090 1](https://user-images.githubusercontent.com/113065635/207463456-87c891bb-bf01-4e22-811c-9657da37dd63.PNG)
-
