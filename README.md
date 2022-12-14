@@ -27,6 +27,10 @@ http://www.accelerated-ideas.com/news/how-to-craft-minecraft-banners-flags-inclu
 
 https://www.washingtonpost.com/video/national/patton-buried-in-luxembourg/2017/04/24/ad162308-294f-11e7-9081-f5405f56d3e4_video.html
 
+https://www.tracesofwar.com/sights/136460/Chapel-American-Cemetery-Luxembourg.htm 
+
+https://www.whereverimayroamblog.com/visiting-the-luxembourg-american-cemetery/
+
 https://youtu.be/NmIvZENf020
 
 https://youtu.be/IfezCf328V4
@@ -75,3 +79,4 @@ Over the past several days, I added new additions to my world. I added new grave
 ![IMG_4084 1](https://user-images.githubusercontent.com/113065635/207463380-4e37da6b-ff45-4606-9578-9cb5dd1103dc.PNG)
 ![IMG_4085 1](https://user-images.githubusercontent.com/113065635/207463424-a313c17d-5bd5-4ed7-8591-16ed644b642d.PNG)
 ![IMG_4090 1](https://user-images.githubusercontent.com/113065635/207463456-87c891bb-bf01-4e22-811c-9657da37dd63.PNG)
+![IMG_4091 1](https://user-images.githubusercontent.com/113065635/207716356-0357d2df-7678-40f0-89ce-7289ce8938ff.PNG)
